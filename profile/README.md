@@ -14,4 +14,4 @@ Our aim is simple: to create tons of repositories filled with **all** our ideas 
 
 We don’t want fame, we don’t want money, and we definitely don’t want anything else… like I said, we’re just here to make fun things for fun people. **That’s it** 😎🎈
 
-![GdQxpwnXUAAmNDR](https://github.com/user-attachments/assets/ff9ec27a-4e7b-404c-947e-6e4651f14b37)
+![GdQxpwnXUAAmNDR](https://github.com/user-attachments/assets/54d89a76-f827-4481-aba1-8d2040f727f4)
